@@ -1,2 +1,0 @@
-# samil1
-awd
